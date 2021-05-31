@@ -1,9 +1,9 @@
 # Statistic-II-Preface-Only-
 AEMA610 - Prof. Roger.Cue - Dept. Animal Science - McGill University   
 
-AEMA610 - Prof. Roger.Cue - Dept. Animal Science - McGill University
 
-(Not public) 
+Thank you for the great course!
+
 
 1.The textbook
 
